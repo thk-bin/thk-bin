@@ -5,7 +5,8 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
-- who discord: https://discord.gg/uejF9uBu
+- Name Discord : CBin Hub | COMMUNITY
+- who discord: [Click Join Sever Discord Me!](https://discord.gg/bRbQuQYc)
 <!---
 thk-bin/thk-bin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
