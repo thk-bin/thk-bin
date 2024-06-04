@@ -1,13 +1,9 @@
-- 👋 Hi, I’m @Home_40
+- 👋 Hi, I’m [@Home_40](https://discord.gg/bRbQuQYc)
 - 👀 I’m Interested In Code
 - 🌱 I’m Currently Learning ...
 - 💞️ I’m Looking To Collaborate On ...
 - 📫 How To Reach Me ...
 - 😄 Pronouns: ...
 - ⚡ Fun Fact: ...
-- Name Discord : CBin Hub | COMMUNITY
-- Ưho Discord: [Click Join Sever Discord Me!](https://discord.gg/bRbQuQYc)
-<!---
-thk-bin/thk-bin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- ✨ Name Discord : [CBin Hub | COMMUNITY](https://discord.gg/bRbQuQYc)
+- ✨ Discord: [Click Join Sever Discord Me!](https://discord.gg/bRbQuQYc)
