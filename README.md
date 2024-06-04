@@ -1,6 +1,6 @@
 - 👋 Hi, I’m [@Home_40](https://discord.gg/bRbQuQYc)
 - 👀 I’m Interested In Code
-- 🌱 I’m Currently Learning ...
+- 🌱 I’m Currently Learning [Source code](https://discord.gg/bRbQuQYc)
 - 💞️ I’m Looking To Collaborate On ...
 - 📫 How To Reach Me : [there is no way](https://discord.gg/bRbQuQYc)
 - 😄 Pronouns: [VN](https://discord.gg/bRbQuQYc)
